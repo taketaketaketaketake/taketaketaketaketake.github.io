@@ -1,1 +1,0 @@
-# taketaketaketaketake.github.io
